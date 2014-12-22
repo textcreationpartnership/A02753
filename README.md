@@ -36,108 +36,120 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A discouery of the fraudulent practises of Iohn Darrel Bacheler of Artes in his proceedings concerni
+
+1. The Epiſtle to the Reader.
+
 #####Body#####
 
-1. CHAP. I. The number of ſuch perſons as are ſaid to haue beene diſpoſſeſſed by M. Darrels meanes.
+1. The Firſt Booke.
 
-1. CHAP. II. The occaſion why M. Darrels dealing with Somers was called into queſtion at Lambeth.
+    _ CHAP. I. The number of ſuch perſons as are ſaid to haue beene diſpoſſeſſed by M. Darrels meanes.
 
-1. CHAP. III. How M. Darrels friends haue ſet out the pretended diſpoſſeſsing of William Somers.
+    _ CHAP. II. The occaſion why M. Darrels dealing with Somers was called into queſtion at Lambeth.
 
-1. CHAP. IIII. How M. Darrell is made a fitter inſtrument to caſt out Diuels, then many other.
+    _ CHAP. III. How M. Darrels friends haue ſet out the pretended diſpoſſeſsing of William Somers.
 
-1. CHAP. V. How M. Darrell knew William Somers, and the reſt to bee poſſeſſed.
+    _ CHAP. IIII. How M. Darrell is made a fitter inſtrument to caſt out Diuels, then many other.
 
-1. CHAP. VI. Of M. Darrels knowledge, who ſent the Deuill into Somers, and the reſt.
+    _ CHAP. V. How M. Darrell knew William Somers, and the reſt to bee poſſeſſed.
 
-1. CHAP. VII. Of the Cauſes pretended, why men are poſſeſſed.
+    _ CHAP. VI. Of M. Darrels knowledge, who ſent the Deuill into Somers, and the reſt.
 
-1. CHAP. VIII. Of the meanes alledged by M. Darrell, and others, whereby men are diſpoſſeſſed.
+    _ CHAP. VII. Of the Cauſes pretended, why men are poſſeſſed.
 
-1. CHAP. 9. Of the ſignes whereby M. Darrell and others do diſcerne (as they ſay) when Sathan is expelled.
+    _ CHAP. VIII. Of the meanes alledged by M. Darrell, and others, whereby men are diſpoſſeſſed.
 
-1. CHAP. X. Of M. Darrell, and M. Mores conceite: that Sathan being caſt out of one, doth preſentlie after ſeeke to repoſſeſſe him.
+    _ CHAP. 9. Of the ſignes whereby M. Darrell and others do diſcerne (as they ſay) when Sathan is expelled.
 
-1. CHAP. XI. How thoſe that tooke vpon them to caſt out Deuils, doe get themſelues worke, and of their deuiſes to couer their lewdenes.
+    _ CHAP. X. Of M. Darrell, and M. Mores conceite: that Sathan being caſt out of one, doth preſentlie after ſeeke to repoſſeſſe him.
 
-1. CHAP. I. Of M. Darrels intercourſe with Somers by ſtartes at Aſhbie, from about the yeare 1592. vntill 1597. for his inſtruction, how to diſſemble himſelfe to be poſſeſſed.
+    _ CHAP. XI. How thoſe that tooke vpon them to caſt out Deuils, doe get themſelues worke, and of their deuiſes to couer their lewdenes.
 
-1. CHAP. II. Of M. Darrels priuate directions to Somers whileſt hee was at Nottingham with him, how he ſhould from time to time behaue himſelfe in his counterfeiting.
+1. The Second Booke.
 
-1. CHAP. III. Of M Darrels inſtructing of Somers by ſpeaking to others in his hearing, thoſe thinges which he meant that he ſhould practiſe from the fift of Nouember, when he came vnto him, vntil the ſeauenth of the ſame, being the day of his pretended diſpoſſeſſion
+    _ CHAP. I. Of M. Darrels intercourſe with Somers by ſtartes at Aſhbie, from about the yeare 1592. vntill 1597. for his inſtruction, how to diſſemble himſelfe to be poſſeſſed.
 
-1. CHAP. IIII. Of M. Darrels cunning inſtructing of Somers, by ſpeaking to others in his hearing of Sathans ſeeking to repoſſeſſe him, & of the acting of certaine trickes vnder a couerlet, from the ſeuenth of Nouember, vntill about the xxi. of the ſame.
+    _ CHAP. II. Of M. Darrels priuate directions to Somers whileſt hee was at Nottingham with him, how he ſhould from time to time behaue himſelfe in his counterfeiting.
 
-1. CHAP. V. Of M. Darrels cunning inſtructing of Somers, by ſpeaking to others in his hearing ſuch thinges, as he meant he ſhould practiſe in the detecting of witches: from about the xxi. of Nouember, vntill about the vii. of December.
+    _ CHAP. III. Of M Darrels inſtructing of Somers by ſpeaking to others in his hearing, thoſe thinges which he meant that he ſhould practiſe from the fift of Nouember, when he came vnto him, vntil the ſeauenth of the ſame, being the day of his pretended diſpoſſeſſion
 
-1. CHAP. VI. Of M. Darrels courſe, from about the ſeuenth of December, vntill the 14. of Ianuarie, whileſt Somers refuſed to diſſemble any longer.
+    _ CHAP. IIII. Of M. Darrels cunning inſtructing of Somers, by ſpeaking to others in his hearing of Sathans ſeeking to repoſſeſſe him, & of the acting of certaine trickes vnder a couerlet, from the ſeuenth of Nouember, vntill about the xxi. of the ſame.
 
-1. CHAP. VII. How Somers about the xiiij. of Ianuarie fel againe to the acting of certaine fits, wherein he continued at times, till about the xxiiij. of Februarie, and how M. Darrell pretended that he was repoſſeſſed.
+    _ CHAP. V. Of M. Darrels cunning inſtructing of Somers, by ſpeaking to others in his hearing ſuch thinges, as he meant he ſhould practiſe in the detecting of witches: from about the xxi. of Nouember, vntill about the vii. of December.
 
-1. CHAP. I. How Somers confeſſed his diſſimulation at S. Iohns in Nottingham, as ſoone as he was out of M. Darrels diſpoſition.
+    _ CHAP. VI. Of M. Darrels courſe, from about the ſeuenth of December, vntill the 14. of Ianuarie, whileſt Somers refuſed to diſſemble any longer.
 
-1. CHAP. II. How M. Darrel dealt with Somers, for the reuocation of his ſaid confeſsion, that he had diſſembled.
+    _ CHAP. VII. How Somers about the xiiij. of Ianuarie fel againe to the acting of certaine fits, wherein he continued at times, till about the xxiiij. of Februarie, and how M. Darrell pretended that he was repoſſeſſed.
 
-1. CHAP. III. How M. Darrell deuiſed two or three ſhifts, to haue auoided Somers confeſsion, that he had diſſembled.
+1. The Thirde Booke.
 
-1. CHAP. IIII. How M. Darrell and his friends to diſcredite Somers confeſſion, did falſly reporte, that he was induced thereunto by promiſes, threatnings, and inchantments.
+    _ CHAP. I. How Somers confeſſed his diſſimulation at S. Iohns in Nottingham, as ſoone as he was out of M. Darrels diſpoſition.
 
-1. CHAP. V. Of M. Darrels ridiculous pretence, that Somers was induced by the Deuill in forme of a blacke dogge, and an Aſſe, to ſay hee had diſſembled.
+    _ CHAP. II. How M. Darrel dealt with Somers, for the reuocation of his ſaid confeſsion, that he had diſſembled.
 
-1. CHAP. VI. How M. Darrell hath falſly affirmed, that William Somers was induced to ſay he had diſſembled, for feare of hanging: whereas he falling into his fittes before the Commiſsioners at Nottingham, (vpon a former compact) the feare of hanging was one of the chiefeſt cauſes, that he then affirmed, that hee had not diſſembled.
+    _ CHAP. III. How M. Darrell deuiſed two or three ſhifts, to haue auoided Somers confeſsion, that he had diſſembled.
 
-1. CHAP. VII. How Somers was perſwaded by threatnings, & promiſes, to haue continued his diſsimulation, after hee had beene before the Commiſsioners at Nottingham, vntill M. Darrell might againe diſpoſſeſſe him.
+    _ CHAP. IIII. How M. Darrell and his friends to diſcredite Somers confeſſion, did falſly reporte, that he was induced thereunto by promiſes, threatnings, and inchantments.
 
-1. CHAP. VIII. Of the depoſitions taken in M. Darrells behalfe at Nottingham, and how vpon the reexamination of his own witneſſes, it falleth out: that the bodilie actions of Somers in his fitts, were not extraordinary, as they haue beene miſreported.
+    _ CHAP. V. Of M. Darrels ridiculous pretence, that Somers was induced by the Deuill in forme of a blacke dogge, and an Aſſe, to ſay hee had diſſembled.
 
-1. CHAP. I. How Maiſter Darrell laboured from time to time, to make thoſe thinges that Somers did, (and were but very toyes) to bee thought both ſtrange and extraordinarie.
+    _ CHAP. VI. How M. Darrell hath falſly affirmed, that William Somers was induced to ſay he had diſſembled, for feare of hanging: whereas he falling into his fittes before the Commiſsioners at Nottingham, (vpon a former compact) the feare of hanging was one of the chiefeſt cauſes, that he then affirmed, that hee had not diſſembled.
 
-1. CHAP. II. How M. Darrell would not ſuffer (as neare as hee could) any to deale with Somers in his fittes, to trie whether he were ſenſeles or diſſembled.
+    _ CHAP. VII. How Somers was perſwaded by threatnings, & promiſes, to haue continued his diſsimulation, after hee had beene before the Commiſsioners at Nottingham, vntill M. Darrell might againe diſpoſſeſſe him.
 
-1. CHAP. III. How M. Darrell indeuoured to excuſe Somers when hee was taken ſhort, and did ſuch toyes, as did argue him ſufficiently to be but a counterfeit.
+    _ CHAP. VIII. Of the depoſitions taken in M. Darrells behalfe at Nottingham, and how vpon the reexamination of his own witneſſes, it falleth out: that the bodilie actions of Somers in his fitts, were not extraordinary, as they haue beene miſreported.
 
-1. CHAP. IIII. How contrarie to M. Darrels aſſertion, Somers had his ſences & vnderſtanding in his fittes.
+1. The Fourth Booke.
 
-1. CHAP. V. Of the motions and knockinges which were heard and ſeene about Somers in his fittes, that they were done and made by himſelfe, and were not as M. Darrel hath reported, extraordinary or ſupernaturall.
+    _ CHAP. I. How Maiſter Darrell laboured from time to time, to make thoſe thinges that Somers did, (and were but very toyes) to bee thought both ſtrange and extraordinarie.
 
-1. CHAP. VI. How Somers caſting himſelfe into the fire, was voluntarie, and no extraordinarie matter, as M. Darrell hath pretended.
+    _ CHAP. II. How M. Darrell would not ſuffer (as neare as hee could) any to deale with Somers in his fittes, to trie whether he were ſenſeles or diſſembled.
 
-1. CHAP. VII. Of Somers pretended ſtrength and weight in his fittes, that contrary to M. Darrelles and his friendes reportes, there was nothing extraordinary in them.
+    _ CHAP. III. How M. Darrell indeuoured to excuſe Somers when hee was taken ſhort, and did ſuch toyes, as did argue him ſufficiently to be but a counterfeit.
 
-1. CHAP. VIII. Somers knowledge in his fits was not extraordinary, as M. Darrell and his friends haue falſly pretended: neither could hee ſpeake Greeke, Hebrew, or Latine, otherwiſe then hee had learned.
+    _ CHAP. IIII. How contrarie to M. Darrels aſſertion, Somers had his ſences & vnderſtanding in his fittes.
 
-1. CHAP. IX. There was no impoſſibility in Somers fittes, as M. Darrell and his friendes haue falſly pretended.
+    _ CHAP. V. Of the motions and knockinges which were heard and ſeene about Somers in his fittes, that they were done and made by himſelfe, and were not as M. Darrel hath reported, extraordinary or ſupernaturall.
 
-1. CHAP. X. How contrarie to M. Darrels and his friends aſſertions, William Somers was accounted by many in Nottingham, for a diſſembler, from the time that he beganne his practiſes there, vntill he confeſſed the ſame himſelfe.
+    _ CHAP. VI. How Somers caſting himſelfe into the fire, was voluntarie, and no extraordinarie matter, as M. Darrell hath pretended.
 
-1. CHAP. I. How M. Darrels credit, touching his dealing with the boy of Burton, doth relie vpon a falſe & fooliſh booke, that was publiſhed of the ſaid boyes pretended poſſeſsion and diſpoſſeſſion.
+    _ CHAP. VII. Of Somers pretended ſtrength and weight in his fittes, that contrary to M. Darrelles and his friendes reportes, there was nothing extraordinary in them.
 
-1. CHAP. II. Of M. Darrels raſhnes in affirming Thomas Darling to be poſſeſſed, and of his cunning inſtructing him, how to behaue himſelfe vpon the day of his pretended diſpoſſeſſion.
+    _ CHAP. VIII. Somers knowledge in his fits was not extraordinary, as M. Darrell and his friends haue falſly pretended: neither could hee ſpeake Greeke, Hebrew, or Latine, otherwiſe then hee had learned.
 
-1. CHAP. V. Of Maiſter Darrells ſhiftes and abſurdities, concerning the pretended diſpoſſeſſing of Thomas Darling.
+    _ CHAP. IX. There was no impoſſibility in Somers fittes, as M. Darrell and his friendes haue falſly pretended.
 
-1. CHAP. IIII. Of M. Darrels further practiſes with Darling to pretend, that Sathan ſought to reenter into him, and of ſome other his vntrue aſſertions, concerning the boyes fittes, and of his cunning dealing likewiſe with him, that he ſhould neuer confeſſe his diſſimulation.
+    _ CHAP. X. How contrarie to M. Darrels and his friends aſſertions, William Somers was accounted by many in Nottingham, for a diſſembler, from the time that he beganne his practiſes there, vntill he confeſſed the ſame himſelfe.
 
-1. CHAP. V. How Darling confeſſeth his owne diſſimulation.
+1. The Fift Booke.
 
-1. CHAP. VI. A breefe of Katherine Wrights confeſſion, touching the beginning of her diſſimulation, and of the reaſons that mooued her ſo to do.
+    _ CHAP. I. How M. Darrels credit, touching his dealing with the boy of Burton, doth relie vpon a falſe & fooliſh booke, that was publiſhed of the ſaid boyes pretended poſſeſsion and diſpoſſeſſion.
 
-1. CHAP. VII. Of Maister Darrels proceedings with Katherine VVright, for her pretended diſpoſſeſsion.
+    _ CHAP. II. Of M. Darrels raſhnes in affirming Thomas Darling to be poſſeſſed, and of his cunning inſtructing him, how to behaue himſelfe vpon the day of his pretended diſpoſſeſſion.
 
-1. CHAP. VIII. of M. Darrels proceedinges with Mary Cooper the ſiſter of William Somers.
+    _ CHAP. V. Of Maiſter Darrells ſhiftes and abſurdities, concerning the pretended diſpoſſeſſing of Thomas Darling.
+
+    _ CHAP. IIII. Of M. Darrels further practiſes with Darling to pretend, that Sathan ſought to reenter into him, and of ſome other his vntrue aſſertions, concerning the boyes fittes, and of his cunning dealing likewiſe with him, that he ſhould neuer confeſſe his diſſimulation.
+
+    _ CHAP. V. How Darling confeſſeth his owne diſſimulation.
+
+    _ CHAP. VI. A breefe of Katherine Wrights confeſſion, touching the beginning of her diſſimulation, and of the reaſons that mooued her ſo to do.
+
+    _ CHAP. VII. Of Maister Darrels proceedings with Katherine VVright, for her pretended diſpoſſeſsion.
+
+    _ CHAP. VIII. of M. Darrels proceedinges with Mary Cooper the ſiſter of William Somers.
 
 #####Back#####
+The Contentes of the Firſt Booke.THe number of ſuch perſons as are ſaide to haue beene diſpoſſeſſed 
+    _ The Contentes of the Firſt Booke.
 
-1. The Contentes of the Firſt Booke.
+    _ The Contentes of the Second Booke.
 
-1. The Contentes of the Second Booke.
+    _ The Contentes of the Third Booke.
 
-1. The Contentes of the Third Booke.
+    _ The Contentes of the Fourth Booke.
 
-1. The Contentes of the Fourth Booke.
-
-1. The Contentes of the Fift Booke.
+    _ The Contentes of the Fift Booke.
 
 **Types of content**
 
